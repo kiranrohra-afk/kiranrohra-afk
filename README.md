@@ -1,4 +1,4 @@
-## you’ve found me... i mean, welcome to my profile 👀
+## hi stalker.. 👀
 
 - pronouns: she/her
 - data science student @ wlu
